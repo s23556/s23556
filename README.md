@@ -1,2 +1,2 @@
-Matuesz Nakonieczny s23556, gropu 12c
+Matuesz Nakonieczny s23556, group 12c
 
